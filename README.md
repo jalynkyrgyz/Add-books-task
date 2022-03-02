@@ -1,1 +1,1 @@
-https://jalynkyrgyz.github.io/Add-books-task/index.html
+https://jalynkyrgyz.github.io/Add-books-task/inbox.html
